@@ -1,6 +1,6 @@
 - 👋 g'day, i’m @puggobread - she/they pronouns are fine!
 - 👀 i’m interested in actually making somthing for once ( ͡° ͜ʖ ͡°) 
-- 🌱 learning python :)
+- 🌱 learning javascript :)
 - 💞️ i dabble in music composition, specifically piano! fallen down on piano slaps ngl
 - 📫 can't put my email, can't let school block github :(
 - i hope you have a great day!!
