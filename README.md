@@ -1,7 +1,7 @@
 - 👋 g'day, i’m @puggobread - she/they pronouns are fine!
 - 👀 i’m interested in actually making somthing for once ( ͡° ͜ʖ ͡°) 
-- 🌱 messing with game development - but im drowning in 8gb of ram
-- 💞️ piano enthusiast but i have small hands so that sucks
+- 🌱 messing with blender, should i recreate liyue?
+- 💞️ classical pianist, gotta love the superliminal ost
 - 📫 ...........@.........
 - i hope you have a great day!!
 <!---
