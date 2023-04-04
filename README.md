@@ -1,7 +1,7 @@
 - 👋 g'day, i’m @puggobread - she/they pronouns are fine!
 - 👀 i’m interested in actually making somthing for once ( ͡° ͜ʖ ͡°) 
 - 🌱 messing with blender, should i recreate liyue?
-- 💞️ classical pianist, gotta love the superliminal ost
+- 💞️ violin best instrument
 - 📫 ...........@.........
 - i hope you have a great day!!
 <!---
