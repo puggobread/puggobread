@@ -1,6 +1,6 @@
 - 👋 g'day, i’m @puggobread - she/they pronouns are fine!
 - 👀 i’m interested in actually making somthing for once ( ͡° ͜ʖ ͡°) 
-- 🌱 certified gooft goober
+- 🌱 certified goofy goober
 - 💞️ violin best instrument
 - 📫 ...........@.........
 - i hope you have a great day!!
